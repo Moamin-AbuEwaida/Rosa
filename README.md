@@ -32,6 +32,8 @@
 ### My philosophy
 >you can do it if you try again and again, the word "would" does not exist for me
 
+![Be positive](0aaf737e7cfbdb9129fdc9f4782de382.jpg)
+
 you can follow me :smiley:
 :ok_hand: :thumbsup: :heartbeat:
 
