@@ -1,5 +1,7 @@
 # Rosa Moran Delgado
 # Hey This is Rosa Moran,
+![Rosa Moran](ross.jpg)
+
 ## I am from **El Salvador**  :el_salvador:
 ![EL SALVADOR ](amazing.jpg)
 ### **I love to learn thing and i love creativity**
